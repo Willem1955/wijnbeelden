@@ -1,2 +1,2 @@
 Dit is een typisch adres voor het etiket.
-https://willem1955.github.io/wijnbeelden/cava.jpg
+https://willem1955.github.io/wijnbeelden/arbequino.jpg
